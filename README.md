@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+
+![Brown Aesthetic Playful Scrapbook Portfolio Design Presentation](https://github.com/ROUSHNI1/ROUSHNI1/assets/79622917/595e8f0c-0d94-4485-9947-44333fe0ba73)
+
 <!--
 **ROUSHNI1/ROUSHNI1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
